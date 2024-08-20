@@ -1,4 +1,0 @@
-# speedtypingtest
-# speedtypingtest
-# speedtypingtest
-# speedtypingtest
